@@ -1,0 +1,1 @@
+# mnkskyaz.github.io
